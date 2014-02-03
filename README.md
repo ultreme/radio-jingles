@@ -6,14 +6,14 @@ Radio m1ch3l jingles
 - haha haha ha ha ha haha haha
 - hihi hihi hihi hi
 - hi hi ha hi ho hu ho hu hu ha ha
-- hou, hih hih hih hih hih, hou c'est rigolo, parce que c'est des singes, hih hÃ© hÃ© hÃ© hÃ©
+- hou, hih hih hih hih hih, hou c'est rigolo, parce que c'est des singes, hih hé hé hé hé
 - scrotomme
 - radio michel, 24 heures sur 24 de gospel
 - radio michel, a ecouter avec des bretelles
 - radio michel, c'est le bordel
 - radio michel, joyeux bordel
 - radio michel, la radio a l'hydromel
-- radio michel, la radio a la bÃ©chamelle
+- radio michel, la radio a la béchamelle
 - radio michel, la radio a la citronelle
 - radio michel, la radio, en tih conh stih tuh tionnelle
 - radio michel, la radio, antigravitationnelle
@@ -24,13 +24,13 @@ Radio m1ch3l jingles
 - radio michel, la radio des demoiselles
 - radio michel, la radio des echelles
 - radio michel, la radio des romanichelles
-- radio michel, la radio disrupteur dimensionnel, radio michel est un objet Ã©nigmatique trÃ¨s puissant, et l'Ã©nigme qui l'entoure n'a d'Ã©gal que son immense puissance
+- radio michel, la radio disrupteur dimensionnel, radio michel est un objet énigmatique très puissant, et l'énigme qui l'entoure n'a d'égal que son immense puissance
 - radio michel, la radio excrementielle
 - radio michel, la radio, immortel
 - radio michel, la radio nickel
 - radio michel, la radio pour les actes sexuels
 - radio michel, la radio presque fonctionnelle
-- radio michel, la radio que t'Ã©coute mÃªme Ã  l'hotel
+- radio michel, la radio que t'écoute même à l'hotel
 - radio michel, la radio qui aime les cocconelles
 - radio michel, la radio qui brule la cervelle
 - radio michel, la radio qui brule les aisselles
@@ -38,42 +38,42 @@ Radio m1ch3l jingles
 - radio michel, la radio qui envoit des courriels
 - radio michel, la radio qui est belle
 - radio michel, la radio qui ne passe pas dans les tunnels
-- radio michel, la radio qui nique ta pression artÃ¨ri elle
+- radio michel, la radio qui nique ta pression artèri elle
 - radio michel, la radio qui rend bisexuel
 - radio michel, la radio qui s'auto-flagelle
 - radio michel, la radio super mortelle
 - radio michel, la radio sympa
 - radio michel, la radio virtuelle
-- radio michel, la radio Ã  la cannelle
-- radio michel, si toi aussi tÃ© homosexuel
-- radio michel, sponsorisÃ© par babybel
-- top dÃ©lire
+- radio michel, la radio la cannelle
+- radio michel, si toi aussi té homosexuel
+- radio michel, sponsorisé par babybel
+- top délire
 - une pomme
-- radio michel, la radio des mÃ©nÃ©strels
+- radio michel, la radio des ménéstrels
 - radio michel, ne marche pas sur minitel
 - radio michel, la radio de michel
 - radio michel, la radio avec des pixels
-- radio michel, spÃ©cialiste des vermicelles
+- radio michel, spécialiste des vermicelles
 - radio michel, la radio des romanichelles
 - radio michel, la radio des grosses mamelles
 - radio michel, si le rocher t'appelle, tape le avec une pelle
 - radio michel, la radio avec du jambon
 - radio michel, la radio qui aime les poneys
-- radio michel, la radio qui prÃ©vient quand il y a une banane
-- t'en a marre des lave vaisselle, Ã©coute radio michel
+- radio michel, la radio qui prévient quand il y a une banane
+- t'en a marre des lave vaisselle, écoute radio michel
 - radio michel, saveur mortadelle
 - radio michel, c'est tres tres super
 - radio michel, c'est que du plaisir
 - radio michel, oui.
 - radio michel, d'accord.
 - radio michel, c'est mega cool
-- radio michel, la radio prÃ©fÃ©rÃ©e de tcheuck norrisse
-- radio michel, la radio que marvine n'a pas assez ecoutÃ©e
-- radio michel, la radio qui a stoppÃ© la fin du monde
-- salut, Ã§a farte ?
+- radio michel, la radio préférée de tcheuck norrisse
+- radio michel, la radio que marvine n'a pas assez ecoutée
+- radio michel, la radio qui a stoppé la fin du monde
+- salut, ça farte ?
 - radio michel, avec salade, tomattes et oignons
 - radio michel, la radio ecologique
-- radio michel, la radio qui revandique, son indÃ©pendance
+- radio michel, la radio qui revandique, son indépendance
 - radio michel, pour dissiper la confusion
 - radio michel, la radio sponsorisee par sylvester staalaunne
 - on est pas sorti de l'auberge
@@ -89,28 +89,28 @@ Radio m1ch3l jingles
 - c'est parti
 - 1, 2, 3, radio michel sait compter jusqu'a 3
 - 1, 2, 3, allons zaux bois, 4, 5, 6, cueillir des cerises, 7, 8, 9 pour ecouter radio michel
-- avant j'etais rambebeau, mais Ã§a c'etait avant
+- avant j'etais rambebeau, mais ça c'etait avant
 - avant j'etais rambebeau, maintenant j'ecoute radio michel
 - ecoute radio michel !
 - si t'ecoutes pas radio michel, un petit chatton va mourire
 - a bon entendeur, salut
-- michel a dÃ©jÃ  comptÃ© jusqu'Ã  l'infini, trois fois
+- michel a déjà compté jusqu'à l'infini, trois fois
 - tcheuck norrisse porte un pijama michel
-- michel aime bien, lÃ© un et les zÃ©ro
+- michel aime bien, lé un et les zéro
 - radio michel, la radio qui kiff xavier niel
-- bonjour, comment allez-vous etsÃ©tÃ©ra..
+- bonjour, comment allez-vous etsétéra..
 - michel utilise des certificat aisse aisse aile
-- michel n'est pas un bon dÃ©veloppeur Opeune G L
+- michel n'est pas un bon développeur Opeune G L
 - c'est tous les jours noel sur radio michel
 - radio michel, la radio avec michel
 - coucou toi
-- sur le cotÃ© droit de la tondeuse, on trouve le cotÃ© droit de la tondeuse
-- du mÃªme cotÃ©, on trouve aussi le mÃªme cotÃ©
+- sur le coté droit de la tondeuse, on trouve le coté droit de la tondeuse
+- du même coté, on trouve aussi le même coté
 - boujou, boujoujijou
 - bou, jou, , bou, jou, ji, jou
-- moi, j'trouve Ã§a complÃ¨tement con, d'Ãªtre un boeuf de deux ans, chez soi, devant la tÃ©lÃ©
+- moi, j'trouve ça complètement con, d'être un boeuf de deux ans, chez soi, devant la télé
 - radio michel, la radio qui vous rend belle
-- avec radio michel, finis vos problÃ¨mes de selles
+- avec radio michel, finis vos problèmes de selles
 - une gomme
 - boujou, boujoujijou
 - un recor mondiale
